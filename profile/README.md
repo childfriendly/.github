@@ -6,8 +6,6 @@ The initiative emerged in 2014 on Facebook, where previously unacquainted young 
 
 Today, the community includes nearly **1,800 parents**, with more than **20 actively involved** in designing and implementing projects.
 
----
-
 ## Organization
 
 In 2016, the initiative formally registered as the NGO  
@@ -24,8 +22,6 @@ Since then, we have:
 
 Parents with young children belong to low-mobility population groups, which gives us a direct interest in promoting universal accessibility in the city.
 
----
-
 ## Target Groups
 
 Our work focuses on:
@@ -33,8 +29,6 @@ Our work focuses on:
 - families with children  
 - mothers and fathers  
 - children and youth of different ages  
-
----
 
 ## Partnerships & Civic Engagement
 
@@ -45,9 +39,7 @@ The NGO actively participates in civic coalitions and advisory bodies, including
 - Urban initiatives and city development working groups  
 - Coordination group of the IDP Council in Lviv region  
 - Strategy “Child- and Youth-Friendly Community” working groups  
-- Ukrainian Women’s Democratic Network (IRI)  
-
----
+- Ukrainian Women’s Democratic Network (IRI)
 
 ## Partners
 
@@ -61,13 +53,9 @@ Over the years, we have collaborated with dozens of organizations, businesses, a
 - Educational, medical, and cultural institutions  
 - Socially responsible businesses  
 
----
-
 ## Mission
 
 We work to make Lviv a city where families and children can live, grow, and thrive — safe, inclusive, accessible, and supportive for everyone.
-
----
 
 ## Get Involved
 
@@ -79,8 +67,6 @@ We welcome collaboration with:
 - local and international partners  
 
 Together, we can make cities truly friendly to families and children.
-
----
 
 ## Contacts
 
